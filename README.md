@@ -3,8 +3,7 @@
 
 __________________________________
 
-Linkedin: https://www.linkedin.com/in/livianonato
+Linkedin: https://www.linkedin.com/in/liniker-vin%C3%ADcius-623b92216
 
-E-mail: livis.nonato@gmail.com
 
 __________________________________
